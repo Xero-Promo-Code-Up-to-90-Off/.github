@@ -6,7 +6,7 @@ Do you want to **save a lot of money** when you buy Xero? You're in the right pl
 
 # How to Get a Xero Promo Code ✅
 
--  [Get Xero Promo Code Info Here](https://xero5440.partnerlinks.io/z99rhio6pvn7-q1e71)  
+-  [Get Xero Promo Code Info Here](https://referrals.xero.com/60txq69kinl1)  
 - 🆓 Choose **Get 90% off for six months**
 - 📋 Follow the prompt
 - 🎉 Enjoy your discount!
@@ -52,7 +52,7 @@ A **Xero promo code** might give you:
 ## Where to Find Working Xero Promo Codes
 
 Many websites list fake or outdated codes. To get **verified, working codes**, visit:  
-👉  [Get Xero Promo Code Info Here](https://www.xero.com/campaign/referral-refer-a-friend/?utm_source=partnerstack&utm_medium=affiliates&utm_campaign=d5807d979d9c&ps_partner_key=ZDU4MDdkOTc5ZDlj&ps_xid=Xz87ssd26fAlt1&gsxid=Xz87ssd26fAlt1&gspk=ZDU4MDdkOTc5ZDlj)  
+👉  [Get Xero Promo Code Info Here](https://referrals.xero.com/60txq69kinl1)  
 
 We test and update our codes regularly. You can also:
 
