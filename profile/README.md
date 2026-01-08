@@ -6,7 +6,7 @@ Do you want to **save a lot of money** when you buy Xero? You're in the right pl
 
 # How to Get a Xero Promo Code ✅
 
--  [Get Xero Promo Code Info Here](https://ecombuilderinsider.com/xero-github)  
+-  [Get Xero Promo Code Info Here](https://ecombuilderinsider.com/xero-coupon-promo/)  
 - 🆓 Choose **Get 90% off for six months**
 - 📋 Follow the prompt
 - 🎉 Enjoy your discount!
@@ -52,7 +52,7 @@ A **Xero promo code** might give you:
 ## Where to Find Working Xero Promo Codes
 
 Many websites list fake or outdated codes. To get **verified, working codes**, visit:  
-👉  [Get Xero Promo Code Info Here](https://ecombuilderinsider.com/xero-github)  
+👉  [Get Xero Promo Code Info Here](https://ecombuilderinsider.com/xero-coupon-promo/)  
 
 We test and update our codes regularly. You can also:
 
